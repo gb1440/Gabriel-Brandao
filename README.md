@@ -1,4 +1,4 @@
-# Gabriel-Brand-o <h1 align="left">Hey 👋 What's up?</h1>
+# Gabriel-Brandão <h1 align="left">Hey 👋 What's up?</h1>
 
 ###
 
